@@ -71,4 +71,4 @@ Livingstone S, Russo F (2018). The Ryerson Audio-Visual Database of Emotional Sp
 
 Yogesh R Mehta
 
-Shreyas Gupta
+Shreyaas Gupta
